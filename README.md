@@ -1,4 +1,4 @@
-### Hi, I'm Sagar! &nbsp;&nbsp;<sup>👾 &#12299;I'm software engineer OR you can call me software craftsman :) I love to write code.</sup>
+### Hi, I'm Sagar! &nbsp;&nbsp;<sup>👾 &#12299;I'm software engineer OR you can call me software craftsman :) I love to write a code.</sup>
 
 ----
 
